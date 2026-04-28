@@ -1,0 +1,1 @@
+# Rapid-Crisis-Response--Accelerated-Emergency-Response-and-Crisis-Coordination-in-Hospitality
